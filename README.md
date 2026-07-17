@@ -205,7 +205,7 @@ Data Analyst | Power BI Developer
 
 📧 youssefmesalam488@gmail.com
 
-🔗 LinkedIn: https://www.linkedin.com/in/youssef-mesalam
+🔗 LinkedIn: https://www.linkedin.com/in/youssef-mesalam-a8a78a2ab/?
 
 🔗 GitHub: https://github.com/youssefmesalam3
 
